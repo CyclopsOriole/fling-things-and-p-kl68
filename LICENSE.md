@@ -1,4 +1,4 @@
-
+fling things and people no-ban Script is the best fling things and people Script, featuring anti-ban and unlimited stamina. Safe and powerful for all
 
 
 
